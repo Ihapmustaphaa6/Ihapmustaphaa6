@@ -8,4 +8,4 @@
 
 [![Jiangzhiguo's github stats](https://github-readme-stats.vercel.app/api?username=Mr-jiangzhiguo&show_icons=true)](https://github.com/anuraghazra/github-readme-stats)
 
-⭐️ From [Mr-jiangzhiguo](https://github.com/Mr-jiangzhiguo)
+⭐️ From [Ihapmustaphaa6](https://github.com/Ihapmustaphaa6)
